@@ -1,2 +1,2 @@
-# NirmitiDighe.github.io
+# NirmitiDighe.github.io/mod2-solution
 
